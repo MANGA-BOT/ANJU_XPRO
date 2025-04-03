@@ -25,7 +25,7 @@
 //*
 //Base by Janith Rashmika
 //GitHub: @Mrrashmika
-//WhatsApp: +237695140414
+//WhatsApp: +237682229367
 //Want more free bot scripts? Subscribe to my YouTube channel: https://youtube.com/@gamingrash2006
 //   * Created By GitHub: Mrrashmika
 //   * Credit To Janith Rashmika
